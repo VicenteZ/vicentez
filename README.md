@@ -1,1 +1,1 @@
-just for searching
+Just for searching.
